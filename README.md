@@ -5,6 +5,7 @@
 - 📫 How to reach me voltaire@yahoo.cu
 - 😄 Pronouns: Zhe/Zshe
 - ⚡ Fun fact: A minor hunter
+- ⚡ Fun fact: IDOL NAKO SI VIGO
 
 <!---
 voltaire-27/voltaire-27 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
